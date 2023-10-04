@@ -1,6 +1,6 @@
 # TIS-test
 
 * Veronika - 2
-* aaaaaaaaaaaaaaaaaaaaaaaaaa
+* Adri Janackova
 * Matej2
-* nejaký meme
+

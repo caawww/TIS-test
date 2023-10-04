@@ -1,6 +1,6 @@
 # TIS-test
 
-* Veronika - 2
+* Veronika Bendikova
 * aaaaaaaaaaaaaaaaaaaaaaaaaa
 * Matej2
 * nejaký meme
